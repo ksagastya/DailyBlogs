@@ -1,5 +1,5 @@
-Here you can say lots of fun things about your site.
+Hi Stranger!! 
 
-Maybe say a some things about yourself.
+This is my Blog where i am learning and updating my tasks. 
 
-Or maybe what you plan to blog about.
+Please help yourself to read and comment.
